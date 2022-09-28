@@ -1,4 +1,4 @@
-NO THANK YOU 
+NO 'THANK YOU' 
 ONLY JAZAKALLAH
 -------------------------------------------------------------------------
 ALHAMDULILLAH 
