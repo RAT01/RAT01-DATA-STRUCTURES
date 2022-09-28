@@ -1,1 +1,4 @@
-# RAT01-DATA-STRUCTURES
+NO THANK YOU 
+ONLY JAZAKALLAH
+-------------------------------------------------------------------------
+ALHAMDULILLAH 
